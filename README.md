@@ -5,5 +5,7 @@
 
 [Arko](https://twitter.com/arkodyutisaha)📍 from Siliguri, India 
 
-[Karina](https://media.tenor.com/images/55e155bea3f4cdf8d180e70ca7c4e855/tenor.gif)📍 from Oslo, Norway 
+![](https://media.tenor.com/images/55e155bea3f4cdf8d180e70ca7c4e855/tenor.gif)
+
+[Karina]📍 from Oslo, Norway 
 
