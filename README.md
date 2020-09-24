@@ -4,6 +4,8 @@
 ![](https://media.giphy.com/media/l41JK10Ccw26RV9PW/giphy.gif)
 
 [Arko](https://twitter.com/arkodyutisaha)📍 from Siliguri, India 
+[Arko] Bill from Nashville!
+![](https://media.giphy.com/media/IgGLggVL4HXYDAot0Y/giphy.gif)
 
 
 
