@@ -5,5 +5,5 @@
 
 [Arko](https://twitter.com/arkodyutisaha)📍 from Siliguri, India 
 
-https://media.giphy.com/media/3o6ozuHcxTtVWJJn32/giphy.gif
+![](https://media.giphy.com/media/3o6ozuHcxTtVWJJn32/giphy.gif)
 [Jaintra](https://twitter.com/thejaintra), From Bihar, India
