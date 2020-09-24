@@ -9,6 +9,6 @@
 
 [Khushboo](https://twitter.com/khushbooverma_)📍 from Delhi, India 
 
-
+What happens if one person adds something and one person deletes something from the original file. How do you stay on top of it? By the way I'm on my 2nd cup of coffee from North Carolina, USA.
 
 pravallika from India
